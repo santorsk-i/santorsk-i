@@ -1,4 +1,5 @@
-hellur
+hellur<img width="234" height="200" alt="giphy" src="https://github.com/user-attachments/assets/5fb89849-60b8-4024-8820-cde18628a8e5" />
+
 
 <!--
 **santorsk-i/santorsk-i** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
