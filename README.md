@@ -1,4 +1,5 @@
-<img width="498" height="264" alt="suicide-room-sala-samobojcow" src="https://github.com/user-attachments/assets/9beda941-4df3-4273-9857-68e7d00ab669" />
+<img width="390" height="240" alt="download (3)" src="https://github.com/user-attachments/assets/658d7a32-ca58-4809-bafe-a1a91711360a" />
+
 
 
 
