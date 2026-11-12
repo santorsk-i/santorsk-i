@@ -13,7 +13,7 @@
   
 - when i say im like dominik i fully mean i dont go outsid e and i hate my rich wealthylife. i also gonna die from swalling pills soon just wait. 😄 im living, quietly bleeding #familyproblems #onlinedrama yup thats it im ENDING mylife 
 
-- dni people u know who u are , slyvia dni ever i hate . if i see any im swallowing the bottle dni dni DNI!!!!! alek int i loveu 😍
+- dni people u know who u are , slywia dni ever i hate . if i see any im swallowing the bottle dni dni DNI!!!!! alek int i loveu 😍
 - im not really friendly unlesswe share intrest or im with friends.
 
 
