@@ -18,3 +18,9 @@
 
 
 - i will top u one day alek. "𝘭𝘦𝘵𝘴 𝘱𝘢𝘳𝘵𝘺 𝘢𝘯𝘥 𝘥𝘳𝘪𝘯𝘬 𝘸𝘩𝘪𝘭𝘦 𝘸𝘦 𝘮𝘢𝘬𝘦 𝘰𝘶𝘵 𝘢𝘯𝘥 𝘱𝘭𝘢𝘺 𝘫𝘶𝘥𝘰!!!"
+<p align="center">
+<a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&redirect=true">
+ <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ul63egidbagvs63vnzvkha7q64&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=true">
+ </a>
+</p>
+   
